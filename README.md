@@ -11,10 +11,10 @@ What if Taylor Swift was a poet? This Twitter Bot creates verses from Taylor Swi
 
 >Second guessing like a 
 >Polaroid of road 
->Stay hey Just take
+>Stay hey!
 
->flames or paradise 
->Fade into view oh 
->I'm dancing on too
+>Flames or paradise,
+>fade into view oh 
+>I'm dancing on them too
 
 
